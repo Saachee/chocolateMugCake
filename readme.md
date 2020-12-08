@@ -13,7 +13,7 @@ then put , - 3 tableSpoon of milk
 mix the mixture well it turns thick and liquidy
  * make shure it should not be tooo milky
 
-after, put iit in the oven for 2 mins 
+after, put iit in the microwave for 2 mins
 AND IT IS DONE !!
 
 ENJOY THE YUMMY CHOCOLATEY MUG CAKE !!
